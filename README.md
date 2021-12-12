@@ -1,2 +1,9 @@
 # onder-schot-door-bewuzt-zorgverzekering
+
 2015-2021
+
+# economic warfare
+https://en.wikipedia.org/wiki/Economic_warfare
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
